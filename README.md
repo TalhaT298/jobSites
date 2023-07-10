@@ -1,5 +1,5 @@
 # Sites with the possibility of hiring for remote work .
- [mdtalha2008@gmail.com](mailto:mdtalha2008@gmail.com) » [WhatsApp](https://api.whatsapp.com/send?phone=+8801785030648) » [LinkdIn](https://www.linkedin.com/in/talha-tarique/) » [Facebook](https://www.facebook.com/talha.tarique.5) » [Twitter](https://twitter.com/TalhaTarique1) 
+ [mdtalha2008@gmail.com](mailto:mdtalha2008@gmail.com) » [WhatsApp](https://wa.me/01785030648) » [LinkdIn](https://www.linkedin.com/in/talha-tarique/) » [Facebook](https://www.facebook.com/talha.tarique.5) » [Twitter](https://twitter.com/TalhaTarique1) 
 
 <br />
 
